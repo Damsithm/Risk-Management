@@ -1,1 +1,1 @@
-# Risk-Management-
+# Risk-Management-Risk management is the process of identifying, assessing and controlling threats to an organization's capital, earnings and operations. These risks stem from a variety of sources, including financial uncertainties, legal liabilities, technology issues, strategic management errors, accidents and natural disasters.
